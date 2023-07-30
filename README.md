@@ -31,23 +31,19 @@
 
 Моё образование:
 ![](https://taplink.st/p/2/1/0/2/42823824.jpg)
-![]{(https://taplink.st/p/2/1/0/2/42823824.jpg}
+![]{(https://taplink.st/p/a/5/1/5/42823788.jpg}
 
 [ОТЗЫВЫ](https://t.me/sfrnv_feedback)
 
 Узнать поближе:
 
-[ТЕЛЕГРАМ КАНАЛ
+[ТЕЛЕГРАМ КАНАЛ](https://t.me/sfrnv)
 пишу о коучинге, терапии и взаимодействии с людьми
-](https://t.me/sfrnv)
 
-[ИНСТАГРАМ
+[ИНСТАГРАМ](https://instagram.com/sfrnw)
 фото + мысли
-](https://instagram.com/sfrnw)
-
-[ЛИНКЕДИН
+[ЛИНКЕДИН](https://www.linkedin.com/in/sfrnv/)
 опыт + рабочие заметки
-](https://www.linkedin.com/in/sfrnv/)
 
 Остались вопросы? Пиши:
 [Whatsapp](whatsapp://send?phone=79817682309&text=%D0%94%D0%BE%D0%B1%D1%80%D1%8B%D0%B9%20%D0%B4%D0%B5%D0%BD%D1%8C.%20%D0%AF%20%D0%BF%D0%BE%20%D0%BF%D0%BE%D0%B2%D0%BE%D0%B4%D1%83%20%D0%BA%D0%BE%D1%83%D1%87%D0%B8%D0%BD%D0%B3%D0%B0.%20)
