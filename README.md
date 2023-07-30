@@ -31,7 +31,7 @@
 
 Моё образование:
 ![](https://taplink.st/p/2/1/0/2/42823824.jpg)
-![]{(https://taplink.st/p/a/5/1/5/42823788.jpg}
+![](https://taplink.st/p/a/5/1/5/42823788.jpg)
 
 [ОТЗЫВЫ](https://t.me/sfrnv_feedback)
 
