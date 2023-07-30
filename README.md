@@ -35,12 +35,12 @@
 
 Узнать поближе:
 
-[ТЕЛЕГРАМ КАНАЛ](https://t.me/sfrnv)
+[Телеграм каналЛ](https://t.me/sfrnv)
 пишу о коучинге, терапии и взаимодействии с людьми
 
-[ИНСТАГРАМ](https://instagram.com/sfrnw)
+[Инстаграм](https://instagram.com/sfrnw)
 фото + мысли
-[ЛИНКЕДИН](https://www.linkedin.com/in/sfrnv/)
+[Линкедин](https://www.linkedin.com/in/sfrnv/)
 опыт + рабочие заметки
 
 Остались вопросы? Пиши:
