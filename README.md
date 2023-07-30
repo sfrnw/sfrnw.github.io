@@ -40,9 +40,12 @@
 
 [Инстаграм](https://instagram.com/sfrnw)
 фото + мысли
+
 [Линкедин](https://www.linkedin.com/in/sfrnv/)
 опыт + рабочие заметки
 
 Остались вопросы? Пиши:
+
 [Whatsapp](whatsapp://send?phone=79817682309&text=%D0%94%D0%BE%D0%B1%D1%80%D1%8B%D0%B9%20%D0%B4%D0%B5%D0%BD%D1%8C.%20%D0%AF%20%D0%BF%D0%BE%20%D0%BF%D0%BE%D0%B2%D0%BE%D0%B4%D1%83%20%D0%BA%D0%BE%D1%83%D1%87%D0%B8%D0%BD%D0%B3%D0%B0.%20)
+
 [Telegram](https://t.me/sfrnw)
